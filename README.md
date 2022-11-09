@@ -28,7 +28,7 @@
 
    1. MUKESH MONI   (TL) - 
 
-   2. BALAJII MAMA    (M1) - 
+   2. BALAJII   (M1) - 
 
    3. GOKUL  (M2) - 
 
